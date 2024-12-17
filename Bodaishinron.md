@@ -26,142 +26,42 @@ Ainsi, l'Avataṃsaka-sūtra dit : « Il n'y a pas un seul être sensible qui ne
 La « Paix de l'âme » signifie que, parce qu'un prattiquant comprend déjà que que tous les êtres sensibles atteindront finalement la bouddhéité, il n'ose pas être arrogant. En outre, grâce à l'enseignement de la grande compassion, il
 prend les moyens les plus appropriés pour apporter le salut ultime à tous les tous les êtres sensibles. Il offre ce qu'ils recherchent, même sa propre vie, sans ménagement, pour leur permettre de vivre en paix et leur apporter la joie. Puisqu'il est déjà intime avec eux, les êtres sensibles auront confiance en ses paroles. C'est en effet par l'intimité que la guidance est possible. Même si les les êtres sensibles sont ignorants, ils ne doivent pas être contraints au salut. Le gyôja doit les guider par l'habileté de ses moyens.
 
-## Chapitre III
-Supreme Truth
+## Vérité suprême
 1. Definition
-Second, supreme truth refers to the insight that all dharmas are without
-essence. Why do they lack an essence?
-2. Ordinary People
-Ordinary people are attached to fame, profit, and the necessities of life; they
-devote themselves to achieving material security and recklessly indulge in
-the three poisons and five desires. The mantra practitioner should truly abhor
-and abandon these notions and practices.
-3. Non-Buddhist Religious
-Practitioners
-The non-Buddhist practitioners are attached to their own lives: with the aid
-of drugs they attain life in the palace of the immortals. Some consider rebirth
-in heaven to be the ultimate. The mantra practitioner should observe the nonBuddhist’s view of salvation as follows: even if karmic forces are exhausted,
-one cannot part from the triple world because the afflictions remain to be
-extinguished, the seeds of retribution from the past are not destroyed, and
-evil thoughts repeatedly arise. Thus non-Buddhists sink into the ocean of suffering from where it is difficult to escape. You should know that the Dharma
-of the non-Buddhists is like an illusion, a dream, or a flickering flame.
-4. Followers of the
-Two Vehicles
-Of the followers of the two vehicles, śrāvakas cling to the Dharma of the
-four truths while pratyekabuddhas cling to the Dharma of twelve-stage causation (pratītyasamutpāda). Realizing that the four elements (earth, water,
-fire, and wind) and the five aggregates (skandhas) will ultimately be destroyed,
-113
-The Bodhicitta Śāstra
-they arouse a profound distaste for them: they destroy the notion of the reality
-of self and cultivate the original Dharma, eventually attaining their due level
-of realization—arriving to great nirvana and regarding this as the ultimate
-destination.
-The mantra practitioner should thus observe: though the followers of the
-two vehicles destroy the notion of the reality of self, they still cling to the
-notion of the reality of dharmas, and although they purify their minds (manas),
-they do not understand anything beyond that. Further, by realizing the fruit
-of their respective paths—the product of eons of practices—and by destroying
-both body and mind, they end up reaching nirvana, which is like a vast empty
-space, deep and tranquil. Those of determined nature (śrāvakas and pratyekabuddhas) find it difficult to awaken bodhicitta and are only able to give
-rise to it after completing the full term of kalpas. Those of indeterminate
-nature do not speak of kalpa limits. Meeting the proper conditions they
-directly convert to the Mahayana, depart from the “city of mirage,” and transcend the triple world because of their long-developed faith in the Buddha.
-And through the skill-in-means of buddhas and bodhisattvas and through
-skill-in-means, they will finally awaken the great mind. From the ten stages
-of faith—going through the following stages and passing through the time
-of three incalculable kalpas of arduous practices—they will realize buddhahood. It is already clear that the wisdom of śrāvakas and pratyekabuddhas
-is inferior and is not to be indulged in.
-5. Mahayana Practitioners
-Furthermore, among sentient beings, there are those who are awakened to
-the Mahayana and carry out bodhisattva practices, leaving no Dharma practice
-uncultivated. They practice through three incalculably long kalpas, observing
-the six perfections and innumerable bodhisattva practices to the fullest extent,
-and then realize the buddha fruit. These are graded practices that require a
-considerable span of time.
-The mantra practitioner, having observed the limits of the former, again
-gives rise to the motivation to bring benefit and comfort to all sentient beings
-in their worlds without leaving anyone behind. By the determination generated
-from his great compassion, he permanently transcends the sphere of the practices of the non-Buddhists and the followers of two vehicles. He furthermore
-114
-Chapitre III
-cultivates the supreme teachings of yoga that enable entry into buddhahood
-directly from the level of an ordinary person. Thus he transcends the bodhisattva stages. He also deeply understands that all dharmas are without essence.
-Why do they lack an essence? The gist of this was explained above.
-6. Refutation of the Reality
-of Dharmas
-Now, the Dharma of the lost way arises from deluded conceptualization, and
-continues to develop. This brings about immeasurable and limitless afflictions
-and transmigration through the six destinies. If one awakens, deluded conceptualizations are terminated and various dharmas are extinguished. Therefore
-they lack self-nature. Furthermore, the compassion of buddhas arises from
-the truth to save and embrace sentient beings. Like a physician who prescribes
-the most appropriate medicine for a disease, the Buddha bestows various
-teachings according to various beings’ capacities and each affliction receives
-its own antidote. But just as someone would employ a raft to reach the other
-shore but would abandon it once they have reached that shore, we should likewise abandon the Dharma that enabled us to conquer delusion, because dharmas have no essence. As the Mahāvairocanābhisaṃbodhi-sūtra says, “Dharmas are without marks. Their marks are the marks of empty space.”4 The
-realization of this state of understanding is called the supreme bodhi.
-7. The Emptiness of
-Dharmas
-You should know that all dharmas are empty of an essence. Why? Having
-realized that dharmas are originally unarisen, the essence of the mind is automatically thus. Hence, not having the view of body and mind, one abides in
-quiescent equality, the cognition the ultimate truth, which disallows retrogression. If delusion does arise, one would recognize it but would not follow
-it; when delusion ceases, the mind as the source of all dharmas will become
-void. Here myriad virtues are perfected and their marvelous function is
-infinite. Therefore the buddhas of the ten directions consider the supreme
-truth and practice of the vow as their discipline. Those equipped with this
-state of mind are capable of turning the Dharma wheel and bringing benefits
-to both themselves and others.
-115
-573b
-The Bodhicitta Śāstra
-8. Canonical Sources
-Thus the Avataṃsaka-sūtra says:
-Compassion is the light and wisdom is its guiding principle,
- the two merge as skill-in-means.
-In the purified mind of faith-and-understanding,
- there is the immeasurable power of the Tathāgata.
-Unobstructed knowledge manifests:
- This knowledge is self-realized, not acquired through the aid of others.
-All complete, he is identical with the Tathāgata,
- having awakened to the supreme state.
-If a child of the Buddha awakens for the first time,
- with a precious jewel-mind such as this,
-He will surpass the stage of ordinary people
- and enter the level of buddha practices.
-He is born in the household of the Tathāgata,
- an infallible clan.
-He is equal to the buddhas,
- and, at the end, he will perfect supreme bodhi.
-Having realized this state, even slightly,
- he enters the stage of joy, pramuditā.
-His mind immovable,
- he is like the king of a great mountain.
-4
-The Avataṃsaka-sūtra further says, “In each ground (bhūmi), from the
-first ground up to the tenth ground, great compassion is the base.”6
-The Amitāyurdhyāna-sūtra says, “Buddha-mind is the great compassion.”7
-The Nirvāṇa-sūtra says, “O Cunda, though your body is of mortals, your
-mind is the same as buddhas.”8 It further says:
-The Medicine King, the Buddha, pities the beings of the world;
- His body and wisdom are tranquil.
-Within the Dharma of no-self, he realizes the true self;
- Therefore I pay homage to the Supreme One.
-Having awakened, there is no distinction
- between initial and ultimate enlightenment.
-116
-573c
-Chapitre III
-Between the two, it is initial enlightenment that is difficult.
- For not yet having enlightened oneself, one is supposed to
- enlighten others.
-Thus I pay homage to initial awakening.
-If one has realized initial awakening, he is the master of gods and
- humans, surpassing the śrāvaka and pratyekabuddha.
-This type of awakening transcends the triple world.
- Therefore it is called “unsurpassed.”9
-The Mahāvairocanābhisaṃbodhi-sūtra says, “Bodhicitta is the cause,
-compassion its root, and skill-in-means its end result.”10
-117
+Deuxièmement, la vérité suprême fait référence à l'idée que tous les dharmas sont dépourvus d'essence. Pourquoi sont-ils dépourvus d'essence ?
+2. Les gens ordinaires
+Les gens ordinaires sont attachés à la célébrité, au profit et aux nécessités de la vie ; ils se consacrent à la sécurité matérielle et s'adonnent avec insouciance aux plaisirs de la vie.
+se consacrent à la sécurité matérielle et s'adonnent inconsidérément aux trois poisons et aux cinq désirs.Le pratiquant des mantra doit vraiment abhorrer et abandonner ces notions et pratiques.
+3. Pratiquants religieux non bouddhistes
+Les pratiquants non bouddhistes sont attachés à leur propre vie : à l'aide de drogues, ils atteignent la vie dans le palais des immortels. Certains considèrent la renaissance au paradis comme le summum. Le pratiquant du mantra doit observer la vision du salut des non-bouddhistes comme suit : même si les forces karmiques sont épuisées, on ne peut se séparer du triple monde car les afflictions restent à éteindre, les germes de la rétribution sont à détruire, les graines de la rétribution du passé ne sont pas détruites, et les mauvaises pensées surgissent sans cesse. Les non-bouddhistes sombrent ainsi dans l'océan de la souffrance d'où il est difficile de s'échapper. Vous devez savoir que le Dharma des non-bouddhistes est comme une illusion, un rêve ou une flamme vacillante.
+4. Les adeptes des deux véhicules
+Parmi les adeptes des deux véhicules, les śrāvakas s'attachent au dharma des quatre vérités tandis que les pratyekabuddhas s'attachent au dharma de la causalité en douze étapes (pratītyasamutpāda). Réalisant que les quatre éléments (terre, eau, feu et vent) et les cinq agrégats (skandhas) seront finalement détruits, ils éprouvent un profond dégoût à leur égard : ils détruisent la notion de réalité du soi et cultivent le dharma originel, atteignant finalement le niveau de réalisation qui leur est dû, parvenant au grand nirvana qu'ils considèrent comme leur ultime.
 
+Le pratiquant du mantra devrait donc observer : bien que les adeptes des deux véhicules détruisent la notion de la réalité du soi, ils s'accrochent toujours à la notion de la réalité des dharmas, et bien qu'ils purifient leur esprit (manas), ils ne comprennent rien au-delà. De plus, en réalisant le fruit de leurs voies respectives - le produit d'éons de pratiques - et en détruisant le corps et l'esprit, ils finissent par atteindre le nirvana, qui est comme un vaste espace vide, profond et tranquille. Les personnes de nature déterminée (śrāvakas et pratyekabuddhas) éprouvent des difficultés à éveiller la bodhicitta et ne sont capables de la faire naître qu'après avoir accompli le terme complet des kalpas. Les personnes de nature indéterminée ne parlent pas de limites de kalpa. En réunissant les conditions appropriées, ils se convertissent directement au Mahayana, quittent la « cité des mirages » et transcendent le triple monde grâce à leur foi longuement développée dans le Bouddha. Et grâce à l'habileté des bouddhas et des bodhisattvas et à l'habileté des moyens, ils éveilleront finalement le grand esprit. À partir des dix étapes de la foi - en passant par les étapes suivantes et en traversant le temps de trois kalpas incalculables de pratiques ardues - ils réaliseront la bouddhéité. Il est déjà clair que la sagesse des śrāvakas et des pratyekabuddhas est inférieure et qu'il ne faut pas s'y adonner.
+6. Praticiens du Mahayana
+De plus, parmi les êtres sensibles, il y a ceux qui sont éveillés au Mahayana et qui pratiquent les bodhisattvas, ne négligeant aucune pratique du Dharma. Ils pratiquent pendant trois kalpas incalculablement longs, observant les six perfections et les innombrables pratiques de bodhisattva dans toute leur étendue, puis réalisent le fruit du bouddha. Il s'agit de pratiques graduelles qui nécessitent un temps considérable.
+Le pratiquant du mantra, ayant observé les limites de la première, fait naître à nouveau la motivation d'apporter bénéfice et réconfort à tous les êtres sensibles dans leurs mondes, sans laisser personne derrière lui. Par la détermination générée par sa grande compassion, il transcende définitivement la sphère des pratiques des non-bouddhistes et des adeptes de deux véhicules. Il cultive en outre les enseignements suprêmes du yoga qui permettent d'accéder à la bouddhéité directement depuis le niveau d'une personne ordinaire. Il transcende ainsi les stades de bodhisattva. Il comprend aussi profondément que tous les dharmas sont sans essence. Pourquoi n'ont-ils pas d'essence ? L'essentiel a été expliqué plus haut.
+
+7. Réfutation de la réalité des dharmas
+Le dharma de la voie perdue naît d'une conceptualisation illusoire et continue à se développer. Cela entraîne des afflictions incommensurables et illimitées et la transmigration à travers les six destins. Si l'on s'éveille, les conceptualisations illusoires prennent fin et les différents dharmas s'éteignent. Ils n'ont donc pas de nature propre. En outre, la compassion des bouddhas découle de la vérité pour sauver et embrasser les êtres sensibles. Comme un médecin qui prescrit le médicament le plus approprié pour une maladie, le Bouddha dispense divers enseignements en fonction des capacités des différents êtres et chaque affliction reçoit son propre antidote. Mais de même que l'on utilise un radeau pour atteindre l'autre rive mais qu'on l'abandonne une fois qu'on l'a atteinte, de même nous devrions abandonner le Dharma qui nous a permis de vaincre l'illusion, car les dharmas n'ont pas d'essence. Comme le dit le Mahāvairocanābhisaṃbodhi-sūtra, « Les dharmas sont sans marques. Leurs marques sont les marques de l'espace vide « 4 La réalisation de cet état de compréhension est appelée la bodhi suprême.
+
+8. Le vide des dharmas
+Vous devez savoir que tous les dharmas sont vides d'essence. Ayant réalisé que les dharmas sont originellement unis, l'essence de l'esprit est automatiquement ainsi. Par conséquent, n'ayant pas la vision du corps et de l'esprit, on demeure dans l'égalité tranquille, la connaissance de la vérité ultime, qui empêche la régression. Si l'illusion survient, on la reconnaît mais on ne la suit pas ; lorsque l'illusion cesse, l'esprit, en tant que source de tous les dharmas, devient nul. Ici, des myriades de vertus sont perfectionnées et leur fonction merveilleuse est infinie. C'est pourquoi les bouddhas des dix directions considèrent la vérité suprême et la pratique du vœu comme leur discipline. Ceux qui sont dotés de cet état d'esprit sont capables de faire tourner la roue du Dharma et d'apporter des bienfaits à la fois à eux-mêmes et aux autres.
+
+9. Sources canoniques
+L'Avataṃsaka-sūtra dit ainsi :
+
+> La compassion est la lumière et la sagesse est son principe directeur, les deux fusionnent en tant qu'habileté dans les moyens. Dans l'esprit purifié de la foi et de la compréhension, il y a le pouvoir incommensurable du Tathāgata. La connaissance non obstruée se manifeste :  Cette connaissance est auto-réalisée, elle n'a pas été acquise avec l'aide d'autrui. Tout à fait complet, il est identique au Tathāgata, s'étant éveillé à l'état suprême. Si un enfant du Bouddha s'éveille pour la première fois,  avec un esprit de joyau précieux comme celui-ci, il dépassera le stade des gens ordinaires et entrera dans le niveau des pratiques du Bouddha. Il est né dans la maison du Tathāgata, un clan infaillible. Il est l'égal des bouddhas,  et, à la fin, il atteindra la bodhi suprême. Ayant réalisé cet état, même légèrement, il entre dans le stade de la joie, pramuditā. L'esprit immobile, il est comme le roi d'une grande montagne.
+
+L'Avataṃsaka-sūtra dit encore : 
+> « Dans chaque terrain (bhūmi), du premier terrain au dixième terrain, la grande compassion est la base »6.
+L'Amitāyurdhyāna-sūtra dit :
+>  « L'esprit de Bouddha est la grande compassion »7.
+Le Nirvāṇa-sūtra dit :
+> « O Cunda, bien que ton corps soit celui d'un mortel, ton esprit est le même que celui d'un bouddha »8 :
+Le Roi-Médecin, le Bouddha, a pitié des êtres du monde ; son corps et sa sagesse sont tranquilles. Dans le Dharma du non-soi, il réalise le vrai soi ; C'est pourquoi je rends hommage au Suprême. Après l'éveil, il n'y a pas de distinction entre l'éveil initial et l'éveil ultime. Entre les deux, c'est l'illumination initiale qui est difficile.  Car sans s'être encore éclairé soi-même, on est censé éclairer les autres. C'est pourquoi je rends hommage à l'éveil initial. Si l'on a réalisé l'éveil initial, on est le maître des dieux et des humains, dépassant le śrāvaka et le pratyekabuddha. Ce type d'éveil transcende le triple monde. C'est pourquoi il est appelé « insurpassé ».9
+Le Mahāvairocanābhisaṃbodhi-sūtra dit :
+> « La bodhicitta est la cause, la compassion sa racine, et l'habileté dans les moyens son résultat final» 10.
 Chapitre IV
 Samādhi
 1. Definition
