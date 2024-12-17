@@ -54,16 +54,23 @@ L'Avataṃsaka-sūtra dit ainsi :
 > La compassion est la lumière et la sagesse est son principe directeur, les deux fusionnent en tant qu'habileté dans les moyens. Dans l'esprit purifié de la foi et de la compréhension, il y a le pouvoir incommensurable du Tathāgata. La connaissance non obstruée se manifeste :  Cette connaissance est auto-réalisée, elle n'a pas été acquise avec l'aide d'autrui. Tout à fait complet, il est identique au Tathāgata, s'étant éveillé à l'état suprême. Si un enfant du Bouddha s'éveille pour la première fois,  avec un esprit de joyau précieux comme celui-ci, il dépassera le stade des gens ordinaires et entrera dans le niveau des pratiques du Bouddha. Il est né dans la maison du Tathāgata, un clan infaillible. Il est l'égal des bouddhas,  et, à la fin, il atteindra la bodhi suprême. Ayant réalisé cet état, même légèrement, il entre dans le stade de la joie, pramuditā. L'esprit immobile, il est comme le roi d'une grande montagne.
 
 L'Avataṃsaka-sūtra dit encore : 
+
 > « Dans chaque terrain (bhūmi), du premier terrain au dixième terrain, la grande compassion est la base »6.
+
 L'Amitāyurdhyāna-sūtra dit :
+
 >  « L'esprit de Bouddha est la grande compassion »7.
+
 Le Nirvāṇa-sūtra dit :
+
 > « O Cunda, bien que ton corps soit celui d'un mortel, ton esprit est le même que celui d'un bouddha »8 :
 Le Roi-Médecin, le Bouddha, a pitié des êtres du monde ; son corps et sa sagesse sont tranquilles. Dans le Dharma du non-soi, il réalise le vrai soi ; C'est pourquoi je rends hommage au Suprême. Après l'éveil, il n'y a pas de distinction entre l'éveil initial et l'éveil ultime. Entre les deux, c'est l'illumination initiale qui est difficile.  Car sans s'être encore éclairé soi-même, on est censé éclairer les autres. C'est pourquoi je rends hommage à l'éveil initial. Si l'on a réalisé l'éveil initial, on est le maître des dieux et des humains, dépassant le śrāvaka et le pratyekabuddha. Ce type d'éveil transcende le triple monde. C'est pourquoi il est appelé « insurpassé ».9
+
 Le Mahāvairocanābhisaṃbodhi-sūtra dit :
+
 > « La bodhicitta est la cause, la compassion sa racine, et l'habileté dans les moyens son résultat final» 10.
-Chapitre IV
-Samādhi
+
+## Samādhi
 1. Definition
 Third, samādhi: How should a mantra practitioner, having thus contemplated,
 realize supreme bodhi?
