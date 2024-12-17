@@ -20,25 +20,11 @@ Tout d'abord, le vœu. Le pratiquant doit constamment adopter ce type de pensée
 > J'apporterai le bienfait et la paix à tous les êtres sensibles du monde sans en laisser aucun derrière moi, en les observant dans les dix directions comme s'ils étaient des êtres vivants. sans en laisser aucun derrière moi, en les observant dans les dix directions comme s'ils étaient moi-même.
 Le terme « bienfait » signifie exhorter tous les êtres sensibles et leur permettre de demeurer paisiblement dans le royaume de la paix, de demeurer paisiblement dans le royaume de l'illumination suprême, sans jamais essayer de les sauver au moyen du dharma des deux véhicules.
 2. Tathāgatagarbha
-The mantra practitioner should know that all sentient beings are endowed
-with the nature of the tathāgatagarbha (buddha-nature) and are capable of
-abiding peacefully in supreme enlightenment. Therefore the mantra practitioner does not employ the Dharma of the two vehicles to cause sentient
-beings to be saved. Thus the Avataṃsaka-sūtra says, “There is not a single
-sentient being who is not endowed with the wisdom of the Tathāgata.” But
-because of delusion, distortions, and attachment, sentient beings do not
-realize enlightenment. If they part from delusion, then knowledge of all particulars, spontaneous knowledge, and unobstructed knowledge are readily
-at hand.
-3. Peace of Mind
-“Peace of mind” means that because a practitioner already understands that
-all sentient beings will ultimately realize buddhahood, he would not dare
-to be arrogant. Furthermore, through the teaching of great compassion, he
-takes the most appropriate means to bring about the ultimate salvation of
-all sentient beings. He offers what is sought by them, even his own life,
-unsparingly, to enable them to live in peace and to bring joy to them. Since
-he is already intimate with them, sentient beings will have confidence in
-his words. It is indeed through intimacy that guidance is possible. Even if
-sentient beings are ignorant, they should not be coerced into salvation. A
-mantra practitioner should lead them by skill-in-means.
+Le pratiquant des mantras doit savoir que tous les êtres sensibles sont dotés de la tathāgatagarbha (nature de bouddha) et sont capables de de demeurer paisiblement dans l'illumination suprême. Par conséquent, le pratiquant des mantra n'utilise pas le dharma des deux véhicules pour sauver les êtres sensibles.
+Ainsi, l'Avataṃsaka-sūtra dit : « Il n'y a pas un seul être sensible qui ne soit pas doté de la sagesse du Tathāgata. » Mais à cause de l'illusion, des distorsions et de l'attachement, les êtres sensibles ne ne réalisent pas l'éveil. S'ils se libèrent de l'illusion, la connaissance de toutes les particularités, la connaissance spontanée et la connaissance sans entrave sont immédiatement à portée de main.
+3. Paix de l'âme
+La « Paix de l'âme » signifie que, parce qu'un prattiquant comprend déjà que que tous les êtres sensibles atteindront finalement la bouddhéité, il n'ose pas être arrogant. En outre, grâce à l'enseignement de la grande compassion, il
+prend les moyens les plus appropriés pour apporter le salut ultime à tous les tous les êtres sensibles. Il offre ce qu'ils recherchent, même sa propre vie, sans ménagement, pour leur permettre de vivre en paix et leur apporter la joie. Puisqu'il est déjà intime avec eux, les êtres sensibles auront confiance en ses paroles. C'est en effet par l'intimité que la guidance est possible. Même si les les êtres sensibles sont ignorants, ils ne doivent pas être contraints au salut. Le gyôja doit les guider par l'habileté de ses moyens.
 
 ## Chapitre III
 Supreme Truth
