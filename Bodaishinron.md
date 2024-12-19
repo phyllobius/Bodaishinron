@@ -75,33 +75,12 @@ Le Mahāvairocanābhisaṃbodhi-sūtra dit :
 
 ## Samādhi
 1. Definition
-Third, samādhi: How should a mantra practitioner, having thus contemplated,
-realize supreme bodhi?
-2. The Meditation
-on the Moon
-You should know that all beings inherently dwell in the great enlightenment
-of Samantabhadra Bodhisattva, who represents the attributes of bodhicitta;
-that though they are endowed with bodaishin they are also bound by the
-afflictions of greed, hatred, and delusion; that through the great compassion
-of the buddhas—who, through their wisdom of skill-in-means, teach this
-profound secret yoga—the practitioner is able to meditate on the discs of the
-sun and moon within his mind.
-Through this meditation, he sees his original state of mind (bodhicitta),
-which is tranquil and pure like the light of a full moon covering space without
-discrimination. This state of mind is called complete enlightenment (the perfection of the cognizer); it is also called pure dharmadhātu (the perfection
-of the cognized); and it is also called the sea of the perfection of the wisdom
-of reality (the union of the cognizer and the cognized). Its ability in samādhi
-to contain a variety of immeasurable precious jewels is like a full moon’s
-ability to contain its pureness and brilliance.
-Why? Because all beings are endowed with the mind of Samantabhadra:
-one sees one’s own mind like the disc of the moon.
-Why is the disc of the moon employed as a simile? Because a perfect full
-moon is like bodhicitta. The moon disc has sixteen phases. This is a metaphor
-for the sixteen bodhisattvas, from Vajrasattva to Vajrasaṃdhi, realized in yoga.
+Troisièmement, samādhi : Comment un pratiquant des mantra, ayant ainsi contemplé/médité, réaliser la bodhi suprême ?
+2. Gachirinkan
+Vous devez savoir que tous les êtres résident intrinsèquement dans la grande illumination du bodhisattva Samantabhadra, qui représente les attributs de la bodhicitta ; que bien qu'ils soient dotés de bodaishin, ils sont également liés par les afflictions de l'avidité, de la haine et de l'illusion; que grâce à la grande compassion des bouddhas - qui, par leur gnose de l'habileté dans les moyens, enseignent ce profond yoga secret - le pratiquant est capable de méditer sur les disques du soleil et de la lune à l'intérieur de son esprit. Grâce à cette méditation, il voit son état d'esprit originel (bodhicitta), qui est tranquille et pur comme la lumière d'une pleine lune couvrant l'espace sans discrimination. Cet état d'esprit est appelé illumination complète (la perfection de celui qui connaît) ; il est également appelé pur dharmadhātu (la perfection de celui qui connaît) ; et il est également appelé la mer de la perfection de la sagesse de la réalité (l'union de celui qui connaît et de celui qui est connu). Sa capacité en samādhi à contenir une variété de joyaux précieux incommensurables est comme la capacité d'une pleine lune à contenir sa pureté et son éclat.
+Pourquoi ? Parce que tous les êtres sont dotés de l'esprit de Samantabhadra : on voit son propre esprit comme le disque de la lune. Pourquoi le disque de la lune est-il utilisé comme symbole ? Parce qu'une pleine lune parfaite est comme la bodhicitta. Le disque de la lune a seize phases. C'est une métaphore pour les seize bodhisattvas, de Vajrasattva à Vajrasaṃdhi, réalisés dans le yoga.
 3. The Five Buddhas
 Among the thirty-seven deities of the Vajradhātu Maṇḍala, each buddha of
-119
-The Bodhicitta Śāstra
 the five quarters represents one type of cognition. The five buddhas are:
 (1) Akṣobhya Buddha of the east. He is also called “indestructible cognition” (vajra-jñāna) because he perfects mirrorlike cognition (ādarśa-jñāna).
 (2) Ratnasaṃbhava Buddha of the south. He is also called “investiture
@@ -129,9 +108,6 @@ emanate from Dharmadhātu Mahāvairocana. Each buddha of the four quadrants embr
 (1) Akṣobhya Buddha of the east embraces the four bodhisattvas Vajrasattva, Vajrarāja, Vajravāśin, and Vajrasādhu.
 (2) Ratnasaṃbhava Buddha of the south embraces Vajraratna, Vajraprabha,
 Vajraketu, and Vajrahāsā.
-120
-574a
-Chapitre IV
 (3) Amitābha Buddha of the west embraces Vajradharma, Vajratīkṣṇa,
 Vajrahetu, and Vajrabhāṣa.
 (4) Amoghasiddhi Buddha of the north embraces Vajrakarma, Vajrarakṣa,
