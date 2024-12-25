@@ -252,34 +252,20 @@ these insights. Therefore one should cultivate the understanding of the Mantra
 Dharma.
 Hence, the Mahāvairocanābhisaṃbodhi-sūtra says, “Perfection originates
 from the mind.”14
-The Vajraśekhara-sūtra says:
-When Sarvārthasiddha Bodhisattva first sat in the vajra-seat and attained
+ The Vajraśekhara-sūtra says:
+> When Sarvārthasiddha Bodhisattva first sat in the vajra-seat and attained
 the supreme path, he was endowed with the state of the buddhas and realized its fruition.
-15
 If someone at the present time, with determination, practices the teachings
 as prescribed by the Mantra school, the content of this meditation would be
 revealed to him even without his leaving his seat and he would perfect the
 body of the Buddha.
-Therefore the Mahāvairocana-sūtra, in the “Chapitre on the Rites of Worship” says,
-If the practitioner’s strength does not increase, he should dwell in the
-realm of the Mantra Dharma and only meditate on bodhicitta.
-The Buddha explained that embodied in the Mantra Dharma are ten
-thousand virtues that enable the practitioner to gain insight into the Dharma
-of bodhicitta.
-16
-126
-Chapitre V
-This is because bodhicitta is able to contain the virtues of all buddhas. If
-this bodhicitta is realized through practice, the practitioner will then become
-the master of all teachings; if he returns to the realm of inherent enlightenment,
-he will dwell in the buddha land of mysterious adornment. Without arising
-from his seat, he would perfect all buddha works.
-Bodhicitta is praised as follows: if a person who seeks the wisdom of the
-Buddha realizes bodaishin with the body born of his father and mother, he
-will immediately realize the state of great enlightenment (mahābodhi).
-127
+Therefore the Mahāvairocana-sūtra, in the “Chapitre on the Rites of Worship” says:
+> If the practitioner’s strength does not increase, he should dwell in the realm of the Mantra Dharma and only meditate on bodhicitta. The Buddha explained that embodied in the Mantra Dharma are ten thousand virtues that enable the practitioner to gain insight into the Dharma. 
+This is because bodhicitta is able to contain the virtues of all buddhas. If this bodhicitta is realized through practice, the practitioner will then become the master of all teachings; if he returns to the realm of inherent enlightenment,
+he will dwell in the buddha land of mysterious adornment. Without arising from his seat, he would perfect all buddha works.
+Bodhicitta is praised as follows: if a person who seeks the wisdom of the Buddha realizes bodaishin with the body born of his father and mother, he will immediately realize the state of great enlightenment (mahābodhi).
 
-Notes
+## Notes
 1 The Mahāvairocana-sūtra, T.1564.30:1c.
 2 See Jikidō Takasaki, Nyoraizō shisō no keisei (Tokyo: Shunjusha, 1974).
 3 The terms “gradual” and “sudden” were conceived of in fifth-century China, after
