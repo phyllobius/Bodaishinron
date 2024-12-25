@@ -250,8 +250,9 @@ that enters the six destinies in order to save all beings. The practitioner who
 has not yet observed the meditation of the Mantra Dharma would not gain
 these insights. Therefore one should cultivate the understanding of the Mantra
 Dharma.
-Hence, the Mahāvairocanābhisaṃbodhi-sūtra says, “Perfection originates
-from the mind.”14
+
+Hence, the Mahāvairocanābhisaṃbodhi-sūtra says:
+> “Perfection originates from the mind.”14
  The Vajraśekhara-sūtra says:
 > When Sarvārthasiddha Bodhisattva first sat in the vajra-seat and attained
 the supreme path, he was endowed with the state of the buddhas and realized its fruition.
@@ -259,6 +260,7 @@ If someone at the present time, with determination, practices the teachings
 as prescribed by the Mantra school, the content of this meditation would be
 revealed to him even without his leaving his seat and he would perfect the
 body of the Buddha.
+
 Therefore the Mahāvairocana-sūtra, in the “Chapitre on the Rites of Worship” says:
 > If the practitioner’s strength does not increase, he should dwell in the realm of the Mantra Dharma and only meditate on bodhicitta. The Buddha explained that embodied in the Mantra Dharma are ten thousand virtues that enable the practitioner to gain insight into the Dharma. 
 This is because bodhicitta is able to contain the virtues of all buddhas. If this bodhicitta is realized through practice, the practitioner will then become the master of all teachings; if he returns to the realm of inherent enlightenment,
